@@ -33,8 +33,8 @@ I think the general rule we all aught to follow is do whatever you want, just do
 Created in the form of expanding the Ham Radio system, and developing new ways to be a part of Ham Culture.
 
 
-Below is the tinfoil hat section for Hams Only. 
-☠️ Here be dragons. Be warned. ☠️
+Below is the tinfoil hat section for Hams to read Only. 
+☠️ Here be dragons. You Have been Warned. ☠️
 
 
 
