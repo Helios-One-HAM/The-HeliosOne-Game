@@ -11,6 +11,8 @@ If you found this, it's for you.
 Please help Ham Radio pass the bill: https://www.arrl.org/current-legislation
 This project began as part of the grassroots campaign ongoing with the Amateur Radio community.
 
+I encourage you to read it before continuing onwards.
+
 ---
 
 # Part 1 — Helios 0ne: A Proposal to the Ham Community
