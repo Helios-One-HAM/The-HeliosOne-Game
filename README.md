@@ -223,7 +223,7 @@ It's the thing that's on the tip of everyone's tongue that everyone knows what i
 
 I believe Ham Radio offers a promise of a better tomorrow. We just have to be willing to look at it from the right lens. One of experimentation, exploration of the unknown, as a dedicated area where we are allowed to think silly foolish ideas and test what life could be like. The internet started out as experimental. That's its purest form. Because the purest form of humanity is freedom of expression.
 
-Wherever the sun may shine. I know the fire burns bright and true.
+Wherever the sun may shine. I know the fire burns bright and true. But don't ever forget one's "sunblock" or you could get hurt.
 
 ---
 
