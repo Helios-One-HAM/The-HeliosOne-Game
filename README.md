@@ -287,7 +287,7 @@ PPS.
 If you're still looking for hints. I'll help you, you sorry Milly. If you don't know how to find meaning in your life. Play my game. It's designed to teach you to help you find your own meaning.
 
 Dreams are required for us to come up with new big ideas. 
-Never stop honing your ability to Dream. If it becomes dull. So does your humanity.
+Never stop honing your ability to Dream. If it becomes dull. So does your humanity. Your heart becomes dull and uncreative.
 There is nothing foolish about the Humanity you carry in you.
 
 A joke we like to have as HAMs is making "names" from our callsigns.
@@ -312,6 +312,10 @@ I want to give a chance to those who care enough to ask the question, Why?
 We are cabable of comprehending provlema at the individual and global scale. We just need the proper tools to measure these things.
 Empathy is the idea that the morganers try to reject by nature. When not grounded in reality.
 Greed is the nature that the millies try to reject by nature. When there is injustice.
+
+And we have a system with these two philosophies in conflict. 
+People think they are incompatible because they refuse to learn a new school. 
+They have given up on learning new things because they think they have learned all that they need to know.
 
 I want Dreams to be accessible to everyone in a way that THEY can believe in them.
 If you have a foolish dream like mine. You can only hope to change others by first changing yourself.
