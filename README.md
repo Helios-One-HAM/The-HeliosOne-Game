@@ -5,8 +5,8 @@ This project began in an effort to help with the current grass roots campaign th
 
 How To Play the Helios 0ne game:
 - To those who would answer "Yes!!!!!!! For the love of god, PLEASE YES!" to the "Helios One" Thought experiment. This game is for you.
-- Its played by word of mouth only. If they answer Yes they are "Milly" and if they are a resounding No then they are a "Morganer".
-- If you think the other person you're talking to would say yes to the thought experiment then you add 1 point to your global tracker.
+- Its played by word of mouth only. If they answer Yes they are "Milly" and if they are a resounding No then they are a "Morganer". These are made up names for the Archetype of a character a person falls into at that point in time.
+- If you think the other person you're talking to would say yes to the thought experiment then you add 1 point to your "global" tracker.
 - You should keep a mental tab of the total number of active people in your life that satisfy the Helios One criteria. whenever it goes up or down update it for yourself. 
 - a way to keep tally marks easily are all thats needed to keep score.
 - what you actually do is you talk to some rando and figure out from the convorsation if they would say yes to the HeliosOne Thought Experiment.
@@ -75,3 +75,4 @@ Its also about the new concepts presented in this proposal.
 
 I'd like to share these concepts with anyone who cares to read it.
 This section is for those who want to learn more about the idea of an "InnerNet" and an "OuterNet".
+fill in more below please!
