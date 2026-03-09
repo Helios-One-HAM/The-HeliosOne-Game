@@ -5,7 +5,7 @@ This is where I stake my claim of what I think it means to try and make sense of
 This is my gift to the world.
 
 The top of this file is structured well and as you scroll further and further down it becomes more and more niche and weird.
-Just like how the realy world is. 
+Just like how the real world is. 
 If you found this, it's for you.
 
 Please help Ham Radio pass the bill: https://www.arrl.org/current-legislation
