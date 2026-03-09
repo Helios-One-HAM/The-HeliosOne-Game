@@ -1,10 +1,16 @@
-Welcome to Helios One. You have arrived.
+Please help HAM Pass the Bill! -> https://www.arrl.org/current-legislation
+This project began in an effort to help with the current grass roots campaign that is ongoing with the Ham Radio Association.
+This is my personal ham submission to the campaign.
+
+
+```YOU have arrived```
 
 How To Play:
-- To those who would say Yes!!!!!!! to the Helios One Thought experiment. This game is for you.
+- To those who would say Yes!!!!!!! to the "Helios One" Thought experiment. This game is for you.
 - Its played by word of mouth only.
 - If you think the other person you're talking to would say yes to the thought experiment then you add 1 point to your global tracker.
-- If you think
+- You should keep a mental tab of the total number of people in your life that satisfy the Helios One criteria. 
+- The second objective
 
 
 
