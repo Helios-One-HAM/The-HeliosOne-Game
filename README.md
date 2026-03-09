@@ -25,7 +25,7 @@ IF we take the limitations and restrictions in good faith from the FCC as they a
 
 
 
-
+Below is the tinfoil hat section. Here be dragons. Be warned.
 
 
 
@@ -35,7 +35,7 @@ Inner layer
 
 THE INTER NET AS A WHOLE
 This is the "inter" part of the internet.
-Commercializiation and Money Land is ^ that way.
+Commercializiation and Any Money to be made is ^ this way.
 
 
 
