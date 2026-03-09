@@ -241,6 +241,9 @@ If you're still looking for hints. I'll help you, you sorry Milly.
 I'm not done working. There's more new ideas to come to try helping more people understand the idea of the Helios One Thought Experiment in case you still dont get it.
 Be on the lookout for a new "thing".
 
+Dreams are required for us to come up with new big ideas. 
+Never stop honing your ability to Dream. If it becomes dull. So does your humanity.
+
 ---
 
 — This is KD2GVE signing off, 73
