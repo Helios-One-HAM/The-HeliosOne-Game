@@ -68,7 +68,8 @@ vvvvvvvvvvvvvvvvvvvvvvvvvvvvvvv
 
 
 This section is more of an explanation for the people who want to learn more about the dev of this game.
-This game was created by me a HAM.
+Its also about the new concepts presented in this proposal.
 
-I'd like to share this concept with anyone who cares to read it.
+
+I'd like to share these concepts with anyone who cares to read it.
 This section is for those who want to learn more about the idea of an "InnerNet" and an "OuterNet".
