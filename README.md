@@ -238,8 +238,8 @@ The games industry is in shambles right now. Let's give creativity, art, and cul
 
 PPS.
 If you're still looking for hints. I'll help you, you sorry Milly.
-
-And if not, do not fret. I'm not done working. There's more new ideas to come to try helping more people understand the idea of the Helios One Thought Experiment/Game.
+I'm not done working. There's more new ideas to come to try helping more people understand the idea of the Helios One Thought Experiment in case you still dont get it.
+Be on the lookout for a new "thing".
 
 ---
 
