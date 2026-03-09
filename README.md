@@ -20,7 +20,7 @@ How To Play the Helios 0ne game:
 
   
 This game dares to ask the question? what if we coined a set of new ideas for a new framework of tools that are ubiquitous to all people?
-IF we take the limitations and restrictions in good faith from the FCC as they are when this was made. They represent rules that create a play pen that acts like "humanity's testbed".
+IfF we take the limitations and restrictions in good faith from the FCC as they are when this was made. They represent rules that create a play pen that acts like "humanity's testbed".
 
 
 
