@@ -258,9 +258,10 @@ That is my small crumb of humanity I refuse to let go of. Physics and Science ar
 That is my connection and anchor point to the rest of you HAMs in the Outernet.
 
 I want to be a Milly even if this world demands the mentality of a Morganer. 
-I want to make my dream a reality by using it to try helping others. Just like Vash.
+I want to make my dream a reality by using it to try helping others. 
+Be just like Vash the Stampede in my own way. Peace and Love!
 
-I dont care how. I'm gonna find my own path.
+I dont care how. I'm gonna find my own path with a score worth keeping tabs on. I think winning points is Fun.
 
 ---
 
