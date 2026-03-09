@@ -23,6 +23,8 @@ It is an observer game. A tool that helps you keep tabs on what matters most to 
 
 The name comes from the sun. The sun ionizes the atmosphere. Without it, radio signals don't bounce across continents. Without it, none of this works. Every licensed operator on earth shares that dependency on the same star. Helios 0ne means: we are all under the same sun, and we choose to act like it.
 
+The name Helios One is a reference to the Fable in which this idea comes from originally.
+
 ## The Thought Experiment
 
 Given extraordinary power — the kind that could reshape things — do you use it for yourself or for others?
