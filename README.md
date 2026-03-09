@@ -5,7 +5,7 @@ This project began in an effort to help with the current grass roots campaign th
 
 How To Play the Helios 0ne game:
 - To those who would answer "Yes!!!!!!! For the love of god, PLEASE YES!" to the "Helios One" Thought experiment. This game is for you.
-- Its played by word of mouth only.
+- Its played by word of mouth only. If they answer Yes they are "Milly" and if they are a resounding No then they are a "Morganer".
 - If you think the other person you're talking to would say yes to the thought experiment then you add 1 point to your global tracker.
 - You should keep a mental tab of the total number of active people in your life that satisfy the Helios One criteria. whenever it goes up or down update it for yourself. 
 - a way to keep tally marks easily are all thats needed to keep score.
@@ -13,7 +13,7 @@ How To Play the Helios 0ne game:
 - the key is that you don't let them on to what you're doing. if they find out what you're doing you have to explain the rules to them and teach them how to play it.
 - If they catch you trying to earn a point off of them they must stop you there and tell you that they are allready a player. You may share any info you like.
 - you keep track of how many people you've also taught the rule to.
-- This game is built upon the honor system and is entirely meaningless. It is intended to be a light hearted game activity any individual can play alone with themselves. they don't even need to talk to anyone else. Just listening is fine.
+- This game is built upon the honor system and is entirely meaningless. It is intended to be a light hearted game activity any individual can play alone with themselves. they don't even need to talk to anyone else. Just listening is fine. 
 - You're points stem from how many people have learned the game from you.
 - By playing this game you accept this as a social contract you can never completely put down. Because this is a network game. It's always "on-line".
 - Someone else has you in their book.
@@ -25,8 +25,15 @@ If we take the limitations and restrictions in good faith from the FCC as they a
 
 
 
-Below is the tinfoil hat section. 
 
+I stake this entire Project here as a tiny cornerstone to create a push for Humanity's testbed. 
+I think the Persuit of Happiness it self is a Human right that everyone on this planet is born with.
+I think the general rule we all aught to follow is do whatever you want, just don't do things that cause abuse or harm to things.
+
+Created in the form of expanding the Ham Radio system, and developing new ways to be a part of Ham Culture.
+
+
+Below is the tinfoil hat section for Hams Only. 
 ☠️ Here be dragons. Be warned. ☠️
 
 
@@ -64,3 +71,4 @@ This section is more of an explanation for the people who want to learn more abo
 This game was created by me a HAM.
 
 I'd like to share this concept with anyone who cares to read it.
+This section is for those who want to learn more about the idea of an "InnerNet" and an "OuterNet".
