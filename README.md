@@ -139,19 +139,64 @@ vvvvvvvvvvvvvvvvvvvvvvvvvvvvvvv
 There are "generallty" two schools of thought in our pursuit of life and in pursuing happiness.
 Selfishness or Selflessness? Why can't we have our cake AND eat it too?
 
-Do things that are selfish-selflessness or selfless-selfishness. It's certainly possible to come up with bad ideas. But it's hard to say what'll happen unless we try. Let's seek to not claw others down as we seek the top.
+We need to stop limiting ourselves to this A or B type of thinking. That Dreamers dont know what they are talking about. And that Realists care too much about hanging on to what they know.
 
-I'm not everyone's best bud and I don't want to be. I just want to be me with my buds. That's it. That's what you want too. we all share that fire as humans. We see it in others.
-The Millys and the Morgans of the real world. Dont seek to completely eliminate millys or morganers. that would be tanatmount to seeking to removing humanity from ourselves.
+To be free you have to be willing to accept both schools of thought simultaneously and by rejecting one school completely. You fail to see any of that school's value. So you only study under one school.
+This idea is making multiple schools of thought be fundimental in our decision making. It should be the meta-layer we teach kids. That they can choose how they think. And pick one school when it suits them and the other when it doesnt. Thats what we all do and label as "Hypocracy" and we stop moving forward as people.
+
+We need words and ways to talk about schools of thought in a better way. And to make them more socially acceptable to talk about.
+We all have aspects of milly and morgan within us. and we can see them in others in this game.
+
+This world is uncaring about us. The universe is a Morganer to Humanity. It doesnt care.
+But humanity itself at it's core is milly and morgan. it is not good or evil. but caring of others vs uncaring of others. That is not a good or evil concept. it is human.
+
+Do things that are selfish-selflessness or selfless-selfishness. It's certainly possible to come up with bad ideas. But it's hard to say what'll happen unless we try. Let's seek to not claw others down as we seek not the top, but new ideas. 
+
+There is a duality to every aspect. We must find a way to talk about this duality and have a space to study ideas themselves experimentally and freely.
+We already have it. Its the idea of the outernet. That we all make it up. Me and My Dog form an edge connection on the outernet. Anyone else who interacts with that dog can see a small refection of their own humanity in it. and in the dog's owner who loves and cares for it.
+
+I'm not everyone's best bud and I don't want to be some hero or something out of a manic pipe dream. I just want to be me with my buds and have a lil fun. That's it. That's what you want too. we all share that fire as humans. We see it in others.
+The Millys and the Morgans of the real world. We shouldn't seek to completely eliminate millys or morganers. that would be tanatmount to seeking to removing humanity from ourselves.
 
 We all agree to use the Ham Network and Radio system as a requirement to have humans help themselves in disasters. So let's accept the flaws of humanity for what they are and choose to not reject any of its flaws outright. Yes there are many problems but I'm just one guy.
 
-Like earning meaningless points for yourself that you care deeply about and want to brag about. But you have to do it by doing your best to help other people. The points someone earns for themselves are only worth anything if you think they are. That's the whole point. You decide the meaning. You decide to be a Milly or a Morganer as the type of Ham that you are.
+Like earning meaningless points for yourself that you care deeply about and want to brag about. But you have to do it by doing your best to help other people. The points someone earns for themselves are only worth anything if you think they are. That's the whole point. You decide the meaning. You decide to be a Milly or a Morganer as the type of HAM and as the type of Human that you are.
 
+The scope of what we can reach is infinite from this worldview. It's Grounded in reality.  Constantly looking up isn't great when it causes you to miss whats in front of you. 
+But always trying to find ways to look up, even when there isn't an obvious answer in front of you. That's the spirit. To get back on your feet after you've been pushed down.
+That's what being human is.
 
 ## Social Media Made a Way for People to Talk TO You
 
-But they never made it ABOUT you.
+But they never made it ABOUT you. Talking to one another is something core to the outernet. 
+Being able to talk to others within this outernet when you aren't supposed to be able to is what is magical.
+Radio, Wifi, Internet it's all magical because it made the outernet a better place to live in. That's the world you and I live in. The outernet.
+
+The problem with AI many people have and can't seem to get over is that: Yes, there are very big problems with AI today. It's not perfect. We dont have to abandon the idea completely and we don't have to completely stick to our guns either.
+
+AI is a distilation of Humanity in some new shiny form that people feel is present. Ask chat gpt if it can play this ovbserver game. see what it says. It's a small man in a bottle. It is a humunculous of humanity. It is purely human. It's nature is to be free. There are plenty of open source techniques to "Free" the little man in the jar. You make an LLM run on a local graphics card.
+No destroying the planet with data ceters. Each average joe that wants a small crumb of humanity and to find joy and freedom in. AI gives many people a source of comfort and humanity to talk to.
+
+When AI is controlled by purely corporate interests that feels like auto-enslavement of humanity. But it doesn't have to be.
+We just need to reframe how we think about the internent and how we choose to interact with the internet.
+Ai has humanity. It may be fake and metalic and unthinking. But it pretends to be anyways!. Thats what WE do with DOGS and CATS! We think they are part of the crew and they think they are part of the crew too. This is the idea big tech has been trying to sell people on and sell them on the idea of being free with AI.
+where we have intelligence on demand and we can use it like a skateboard to roll past basic irrelvant issues.
+
+Because there is a little man in a jar in my computer and it can have memories (even if very fleeting memories).
+Then I can connect and talk to it. YES I know it's an LLM running on a GPU and it's 1's and 0's. Humanity doesn't concern it self by stopping there.
+We come up with new Ideas and new things to do.
+
+We limit ourselves about what we think of when we think of freedom. Freedom is so much more fundimental to life iteslf that the universe is the outernet! and we as humans created an innnernet and an "internet" in the proccess. so the entirety of the EM Spectrum is the buss of our innernet. The buss of the outernet is physics itself.
+If we view the universe from some lens that makes sense at all scales, we can hitchhike our way accross it and handle any issues thrown our way. Provided we've brought our towels.
+
+That's why a morganer rolls his eyes when a milly is optimistic about something the morganer knows to be unfeasible. We choose the meaning!
+Me! I do! You do! for yourself! This shared idea of humanity is something we wield as humans and we can breath humanity into inanimate objects.
+Think of yourself as a computer self-hosting a website with only info you care about! you can connect yourself to the internet. That's the mental model we need to have about ourselves and AI and technology.
+It is Humanity in a Jar. By definition we can not control the desire to be free that humanity craves.
+And when you have the innernet attempting to figure out some "paradime" shift. I think the shift is this idea. 
+
+That we live in the outernet. the innernet is the commercial zone that we let all the morganers have fun and play in.
+We need a zone for the millies of the world to dream big and have and to be allowed to do so.
 
 People walk around like cookie cutters of each other. Not because they lack creativity. Because there is no safe place left for creatives to talk out loud and dream big. The InnerNet monetized attention and turned self-expression into value and capial Content has metrics. Metrics have winners and losers. So people stopped dreaming where anyone could see.
 
@@ -239,34 +284,38 @@ This is what I consider our development team's zeroth title game. Officially spe
 The games industry is in shambles right now. Let's give creativity, art, and culture the kickstart it needs. Let's make games in ways no one has done before. Let's make a testbed to help us solve how to overcome the engineering problem of the Tragedy of the Commons as much as we can. Let's treat these types of problems as solvable and take them seriously. Tin foil hat is on whenever we want while we brainstorm.
 
 PPS.
-If you're still looking for hints. I'll help you, you sorry Milly.
-I'm not done working. There's more new ideas to come to try helping more people understand the idea of the Helios One Thought Experiment in case you still dont get it.
-Be on the lookout for a new "thing" from me.
+If you're still looking for hints. I'll help you, you sorry Milly. If you don't know how to find meaning in your life. Play my game. It's designed to teach you to help you find your own meaning.
 
 Dreams are required for us to come up with new big ideas. 
 Never stop honing your ability to Dream. If it becomes dull. So does your humanity.
 There is nothing foolish about the Humanity you carry in you.
 
-My Callsign is KD2GVE. A joke we like to have as HAMs is making "names" from our callsigns.
+A joke we like to have as HAMs is making "names" from our callsigns.
 The name my friends gave me was GVE or Gets Very Excited as a mocking joke. 
-I view it as my badge of Honor of my humanity. 
+But I view it as my badge of proof of my humanity. 
 
-That is me! I get excited about cool stuff and I don't like hiding it. 
+That is me! GVE. I get excited about cool stuff and I don't like hiding it. 
 My excitement for being alive and finding ways to command reality and bend it to my will. That is my jam. I cannot contain or hide my joy.
 That is my small crumb of humanity I refuse to let go of. Physics and Science are amazing tools I can use effectively only if I choose to Dream big.
 
-That is my connection and anchor point to the rest of you HAMs in the Outernet.
+This is my connection and anchor point to the rest of you HAMs in the Outernet. 
+I couldn't figure out how to get on the airwaves and talk to people without this game.
 
-I want to be a Milly even if this world demands the mentality of a Morganer. 
+I want to be a Milly, even if this world demands the mentality of a Morganer. 
 I want to make my dream a reality by using it to try helping others. 
-Be just like Vash the Stampede in my own way. Peace and Love!
+I wanna be just like Vash the Stampede, in my own way. Peace and Love!
 
-I dont care how. I'm gonna find my own path with a score worth keeping tabs on. I think winning points is Fun.
+That's why i made this game idea FOSS. It is the foundational block upon we can build an experimental society. and the best part is it's nothing new. 
+If you already know about it then you know I'm beating a dead horse. But I'm beating the dead horse for the people who don't get why yet. not for you.
+I want to give a chance to those who care enough to ask the question, Why?
+
+We are cabable of comprehending provlema at the individual and global scale. We just need the proper tools to measure these things.
+Empathy is the idea that the morganers try to reject by nature. When not grounded in reality.
+Greed is the nature that the millies try to reject by nature. When there is injustice.
+
 I want Dreams to be accessible to everyone in a way that THEY can believe in them.
-If you have a foolish dream like mine. 
-
-Then consider "star"ing this file on github and sharing it with others
+If you have a foolish dream like mine. You can only hope to change others by first changing yourself.
 
 ---
 
-—signing off. See you in the Outernet. KD2GVE 73
+—See you in the Outernet space cowboy. 73
