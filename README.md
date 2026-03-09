@@ -263,7 +263,10 @@ Be just like Vash the Stampede in my own way. Peace and Love!
 
 I dont care how. I'm gonna find my own path with a score worth keeping tabs on. I think winning points is Fun.
 I want Dreams to be accessible to everyone in a way that THEY can believe in them.
+If you have a foolish dream like mine. 
+
+Then consider "star"ing this file on github and sharing it with others
 
 ---
 
-—signing off, KD2GVE 73
+—signing off. See you in the Outernet. KD2GVE 73
