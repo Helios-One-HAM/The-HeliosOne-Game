@@ -25,7 +25,9 @@ IF we take the limitations and restrictions in good faith from the FCC as they a
 
 
 
-Below is the tinfoil hat section. Here be dragons. Be warned.
+Below is the tinfoil hat section. 
+
+☠️ Here be dragons. Be warned. ☠️
 
 
 
@@ -41,8 +43,10 @@ Commercializiation and Any Money to be made is ^ this way.
 
 
 This interconnect is an ideological one. Not a physical one.
-The idea of an inner and outer layer of the web that is "The Internet TM" interconnected web that humanity has created.
-The inner layer is safe familiar known secure on paper.
+The new big idea is:
+        an inner and outer layer of the web that is what "The Internet TM" is.
+        
+- The inner layer is safe, familiar, known, and 'secure' on paper.
 The outer layer is what hams know and love already. Nothing but dreams and Ideas people have to do silly stuff.
 The outer layer should be the home of the place of new ideas and the place dedicated to studying new ideas.
 
