@@ -27,10 +27,12 @@ If we take the limitations and restrictions in good faith from the FCC as they a
 
 
 I stake this entire Project here as a tiny cornerstone to create a push for Humanity's testbed. 
-I think the Persuit of Happiness it self is a Human right that everyone on this planet is born with.
+And this is my "attempt" to create a gift to humanity that humanity may attempt to keep alive.
+
+I think the Persuit of Happiness itself is a Human right that everyone on this planet is born with.
 I think the general rule we all aught to follow is do whatever you want, just don't do things that cause abuse or harm to things.
 
-Created in the form of expanding the Ham Radio system, and developing new ways to be a part of Ham Culture.
+Created from the need to expand the Ham Radio system, and developing new ways to be a part of Ham Culture.
 
 
 Below is the tinfoil hat section for Hams to read Only. 
