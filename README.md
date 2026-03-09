@@ -245,6 +245,21 @@ Dreams are required for us to come up with new big ideas.
 Never stop honing your ability to Dream. If it becomes dull. So does your humanity.
 There is nothing foolish about the Humanity you carry in you.
 
+My Callsign is KD2GVE. A joke we like to have as HAMs is making "names" from our callsigns.
+The name my friends gave me was GVE or Gets Very Excited as a mocking joke. 
+I view it as my badge of Honor of my humanity. 
+
+That is me! I get excited about cool stuff and I don't like hiding it. 
+My excitement for being alive and finding ways to command reality and bend it to my will. That is my jam. I cannot contain or hide my joy.
+That is my small crumb of humanity I refuse to let go of. Physics and Science are amazing tools I can use effectively only if I choose to Dream big.
+
+That is my connection and anchor point to the rest of you HAMs in the Outernet.
+
+I want to be a Milly even if this world demands the mentality of a Morganer. 
+I want to make my dream a reality by using it to try helping others.
+
+I dont care how. I'm gonna find my own path.
+
 ---
 
-— This is KD2GVE signing off, 73
+—signing off, KD2GVE 73
