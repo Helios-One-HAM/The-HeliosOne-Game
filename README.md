@@ -262,7 +262,7 @@ So instead of slamming our heads against problems that we know to be nightmares 
 
 This is just a silly little game we play whenever we feel bored and want to have a little fun. By coming up with a made up conflict system outside of our normal society. This is the idea to get people excited about ham. It's a rallying cry. And from far away the idea of a game is so ubiquitous kids can play it by accident at schools. No matter what experiences you've had in your own life this game still applies. It's timeless.
 
-Who has this spirit? Who doesn't? This "spirit of humanity" that they carry within them? The idea that any random person can carry it within them, and as long as that happens no matter what happens to me, all is not for loss. Because I believe in the Helios 0ne experiment. Not that everyone is gonna come together to save the world or some bs. But this is the type of low effort, small, breadcrumb idea that builds and lets people create new ideas.
+Who has this spirit? Who doesn't? This "spirit of humanity" that they carry within them? The idea that any random person can carry it within them, and as long as that happens no matter what happens to me, all is not for loss. Because I believe in the Helios 0ne experiment. Not that everyone is gonna come together to save the world or some bs. But this is the type of low effort, small, breadcrumb idea that builds and lets people create new ideas. Value comes from within. Caring is what makes value.
 
 And deep down I've always had this fire, and this unknown urge to do something with it. And in my opinion I think it's my own humanity crying out for something more. Wanting for something more.
 
@@ -306,10 +306,12 @@ I want to make my dream a reality by using it to try helping others.
 I wanna be just like Vash the Stampede, in my own way. Peace and Love!
 
 That's why i made this game idea FOSS. It is the foundational block upon we can build an experimental society. and the best part is it's nothing new. 
-If you already know about it then you know I'm beating a dead horse. But I'm beating the dead horse for the people who don't get why yet. not for you.
-I want to give a chance to those who care enough to ask the question, Why?
+If you already know about it then you know I'm beating a dead horse. But I'm beating the dead horse for the people who don't get why im doing it yet. not for you.
+I want to give a chance to those who care enough to ask the question, Why? and i want easy words and terms for laymen to understand and talk about so we can all collectively decide to regain our humanity.
+and see ourselves however we like. Theres nothing inherently wrong with being a morganer. Just don't abuse anything. the hams figured out how to create that social contract and hold it together on their own.
+lets have the hams leading the charge!
 
-We are cabable of comprehending provlema at the individual and global scale. We just need the proper tools to measure these things.
+We are cabable of comprehending provlems at the individual and global scale. We just need the proper tools to measure these things.
 Empathy is the idea that the morganers try to reject by nature. When not grounded in reality.
 Greed is the nature that the millies try to reject by nature. When there is injustice.
 
