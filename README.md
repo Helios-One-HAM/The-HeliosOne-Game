@@ -262,6 +262,7 @@ I want to make my dream a reality by using it to try helping others.
 Be just like Vash the Stampede in my own way. Peace and Love!
 
 I dont care how. I'm gonna find my own path with a score worth keeping tabs on. I think winning points is Fun.
+I want Dreams to be accessible to everyone in a way that THEY can believe in them.
 
 ---
 
