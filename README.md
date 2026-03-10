@@ -50,7 +50,7 @@ These are made-up names for archetypes. The archetype a person falls into at tha
 - This game is built on the honor system and is entirely meaningless. It is intended to be a lighthearted activity any individual can play alone with themselves and their memories. You don't even need to talk to anyone. Just thinking is fine.
 - By playing this game you accept it as a social contract you can never completely put down. This is a network game. It's "always online" and you can't "pause" it.
 - Someone else already has you in their book. You can put the game down, but you can never truly quit it. Someone else will always have you with them.
-- People who are true pirates can choose to tell this game to others they deem worthy of being players to the Helios One game.
+- People who are true pirates can tell others that their name is written in Davy Jones' locker and that they are a "TRUE PIRATE," only if they want to share this game with someone special they think needs this game.
 
 ## What the Game Is For
 
