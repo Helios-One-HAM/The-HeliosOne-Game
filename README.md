@@ -257,7 +257,7 @@ This game idea gives everyone the perfect mental chew toy to play with in their 
 
 All of the ideas I've worked on for the last decade have finally found what seems like their right place in the world. I want to protect them in a way that no matter what happens, someone in the future will be able to freely communicate.
 
-I think we have this negative attitude about the world because we constantly live with the idea that we live in a "zero sum game" environment. Because we live on the Earth. It's a closed system that means we are doomed to overcrowding or some "population control" means that are completely against the idea of being a Ham. Make everyday life about having fun. That's what being a ham is about. Having fun.
+I think we have this negative attitude about the world because we constantly live with the idea that we live in a "zero sum game" environment. Because we live on the Earth. It's a closed system that means we are doomed to overcrowding or some "population control" means that are completely against the idea of being a Ham. Make everyday life about having fun. That's what being a ham is about. Having fun and being safe.
 
 So instead of slamming our heads against problems that we know to be nightmares to solve, let's choose instead to accept our society for its flaws and accept them. Collectively stop rejecting our own flaws. And figure out a solution to the next problem I want to attack after we solve this one. The resource problem. There is a path forward that doesn't require any population control of any kind. And it's a naive and foolish one.
 
@@ -312,7 +312,7 @@ I want to give a chance to those who care enough to ask the question, Why? and i
 and see ourselves however we like. Theres nothing inherently wrong with being a morganer. Just don't abuse anything. the hams figured out how to create that social contract and hold it together on their own.
 lets have the hams leading the charge!
 
-We are cabable of comprehending provlems at the individual and global scale. We just need the proper tools to measure these things.
+We are cabable of comprehending problems at the individual and global scale. We just need the proper tools to measure these things.
 Empathy is the idea that the morganers try to reject by nature. When not grounded in reality.
 Greed is the nature that the millies try to reject by nature. When there is injustice.
 
