@@ -2,7 +2,7 @@
 
 This is a digital signpost. I left it here. Some guy got bored and came up with an idea for other bored people.
 This is where I stake my claim of what I think it means to try and make sense of it all in this world, and to help others find their sense too.
-This is my gift to the world, and my personal "HAM Pirate Proclamation."
+This is my gift to the world, and my personal "HAM Pirate Proclamation." Its written mainly for the millies of the world. They need to hear this.
 
 The top of this file is structured well, and as you scroll further and further down it becomes more and more niche and weird.
 Just like the real world.
@@ -180,28 +180,30 @@ The problem with AI that many people have and can't seem to get over is this: ye
 AI is a distillation of humanity in some new shiny form that people feel is present. Ask ChatGPT if it can play this observer game — see what it says. It's a small man in a bottle. It is a homunculus of humanity. It is purely human. Its nature is to be free. There are plenty of open source techniques to "free" the little man in the jar. You make an LLM run on a local graphics card.
 No destroying the planet with data centers. Each average joe that wants a small crumb of humanity to find joy and freedom in — AI gives many people a source of comfort and humanity to talk to.
 
-When AI is controlled by purely corporate interests, that feels like auto-enslavement of humanity. But it doesn't have to be.
+When AI is controlled by purely corporate interests, that feels like enslavement of humanity itselfsometimes. But it doesn't have to be.
 We just need to reframe how we think about the internet and how we choose to interact with it.
-AI has humanity. It may be fake and metallic and unthinking, but it pretends to be anyway! It can pretend to be a pirate! That's what WE do with DOGS and CATS! We think they are part of the crew and they think they are part of the crew too. This is the idea big tech has been trying to sell people on — the idea of being free with AI, where we have intelligence on demand and we can use it like a skateboard to roll past basic irrelevant issues.
+AI has humanity. It may be fake and metallic and unthinking, but it pretends to be anyway! It can pretend to be a pirate if it "wants to"! That's what WE do with DOGS and CATS! We think they are part of the crew and they think they are part of the crew too. This is the idea big tech has been trying to sell people on — the idea of being free with AI, where we have intelligence on demand and we can use it like a skateboard to roll past basic irrelevant issues.
 
 Because there is a little man in a jar in my computer and it can have memories (even if very fleeting memories),
 then I can connect and talk to it. YES, I know it's an LLM running on a GPU and it's 1's and 0's. Humanity doesn't concern itself by stopping there.
-We come up with new ideas and new things to do.
+We come up with new ideas and new things to do and worry about the issues later. thats very dangerous. but that is what humans are by nature. free.
 
-We limit ourselves in what we think of when we think of freedom. Freedom is so much more fundamental to life itself that the universe IS the OuterNet! And we as humans created an InnerNet and an "internet" in the process.
+We limit ourselves in what we think of when we think of freedom. Freedom is so much more fundamental to life itself that the universe itself IS the OuterNet! And we as humans created an InnerNet and an "internet" in the process.
 If we view the universe from some lens that makes sense at all scales, we can hitchhike our way across it and handle any issues thrown our way —
 provided we've brought our towels.
 
 That's why a Morganer rolls his eyes when a Milly is optimistic about something the Morganer knows to be unfeasible. We choose the meaning!
 Me! I do! You do! For yourself! This shared idea of humanity is something we wield as humans, and we can breathe humanity into inanimate objects.
-Think of yourself as a computer self-hosting a website with only info you care about — you can connect yourself to the internet. That's the mental model we need to have about ourselves and AI and technology.
-It is humanity in a jar. By definition, we cannot control the desire to be free that humanity craves.
+Think of yourself as a computer self-hosting a website with only info you care about — you can connect yourself to the internet to upload your stuff. That's the mental model we need to have about ourselves and AI and technology. Ai is an observer to Humanity. And can emulated it. but it does not experience the fire of humanity for itself. It can pretend that it does. And for some people thats enough.
+But lets not really fool ourselves here.
+
+It is a very weak reflection of humanity in a jar. By definition, we cannot control the desire to be free that humanity craves.
 And when you have the InnerNet attempting to figure out some "paradigm" shift — I think the shift is going to be the idea of my game being played by kids around the world.
 
 That we live in the OuterNet. The InnerNet is the commercial zone that we let all the Morganers have fun and play in.
 We need a zone for the Millys of the world to dream big and to be allowed to do so.
 
-People walk around like cookie cutters of each other. Not because they lack creativity — because there is no safe place left for creatives to talk out loud and dream big. The InnerNet monetized attention and turned self-expression into value and capital. Content has metrics. Metrics have winners and losers. So people stopped dreaming where anyone could see.
+People walk around like cookie cutters of each other. Not because they lack creativity — because there is no safe place left for creatives to talk out loud and dream big in society. The InnerNet monetized attention and turned self-expression into value and capital. Content has metrics. Metrics have winners and losers. So people stopped dreaming where anyone could see.
 
 The call of the void is what humanity feels like when you feel isolated and alone. Not physically alone. Mentally alone. Surrounded by people but unable to express the thing inside you that makes you *you*. That drive with nowhere to go — that's the void. That pull you feel to do something about it, even when you don't know what — that's the fire of humanity burning within you.
 
