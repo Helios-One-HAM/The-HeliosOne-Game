@@ -43,14 +43,14 @@ These are made up names for archetypes. The archetype a person falls into at tha
 - You talk to someone — anyone — and you figure out from the conversation whether they would say yes to the Helios 0ne thought experiment. You don't ask directly. You listen. You pay attention.
 - If you think they would say yes to the same question at different points in time add 1 point to your tracker number. Then they are a "TRUE PIRATE" in accordance to the theme of the ham event.
 - Your tracker is a mental tally of the total number of active people in your life who satisfy the Helios 0ne criteria. When it goes up or down, you update it for yourself. Tally marks are all you need.
-- The key is you don't let them on to what you're doing.
-- If they find out what you're doing, you have to explain the rules and teach them how to play. Show them these rules.
-- And what is someone who doesn't know something but a sucker?>:) You get to earn a FREE point off of any newbie you get to join the game! Easy pickings for points.
-- If they catch you trying to earn a point off of them, they must stop you and tell you they are already a player. You may share any info you like.
+- The key is you "don't" let them on to what you're doing.
+- And what is someone who doesn't know something but a sucker?>:) You get to earn a FREE point off of any newbie you get to join the game! Easy pickings for points. Be sure to gloat!
+- If they catch you trying to earn a point off of them, they must stop you and tell you they are already a player. They can block you. And when they do you must tell them your number.
 - You keep track of how many people you've taught the rules to. That's your score. Your points come from how many people have learned the rules of this game from you.
 - This game is built on the honor system and is entirely meaningless. It is intended to be a lighthearted activity any individual can play alone with themselves and their memories. You don't even need to talk to anyone. Just thinking is fine.
 - By playing this game you accept it as a social contract you can never completely put down. This is a network game. It's "always online" and you can't "pause" it.
 - Someone else already has you in their book. You can put the game down. But you can never truely quit it. someone else will always have you in their number.
+- People who are true pirates can tell others that their name is written in davy jone's locker and that they are a "TRUE PIRATE" only if they want to share this game with someone special they think that needs this game.
 
 ## What the Game Is For
 
