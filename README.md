@@ -39,7 +39,7 @@ These are made up names for archetypes. The archetype a person falls into at tha
 
 ## How To Play
 
-- It's played by word of mouth only.
+- It's played by word of mouth only. And only the crew of Davy Jones have been taught this game.
 - You talk to someone — anyone — and you figure out from the conversation whether they would say yes to the Helios 0ne thought experiment. You don't ask directly. You listen. You pay attention.
 - If you think they would say yes and are a Milly, you add 1 point to your tracker number. 
 - Your tracker is a mental tally of the total number of active people in your life who satisfy the Helios 0ne criteria. When it goes up or down, you update it for yourself. Tally marks are all you need.
