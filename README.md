@@ -41,13 +41,13 @@ These are made up names for archetypes. The archetype a person falls into at tha
 
 - It's played by word of mouth only. And only the crew of Davy Jones have been taught this game.
 - You talk to someone — anyone — and you figure out from the conversation whether they would say yes to the Helios 0ne thought experiment. You don't ask directly. You listen. You pay attention.
-- If you think they would say yes and are a Milly, you add 1 point to your tracker number. 
+- If you think they would say yes to the same question at different points in time add 1 point to your tracker number. Then they are a "TRUE PIRATE" in accordance to the theme of the ham event.
 - Your tracker is a mental tally of the total number of active people in your life who satisfy the Helios 0ne criteria. When it goes up or down, you update it for yourself. Tally marks are all you need.
 - The key is you don't let them on to what you're doing.
 - If they find out what you're doing, you have to explain the rules and teach them how to play. Show them these rules.
-- What is someone who doesn't know something but a sucker? You get to earn a FREE point off of any newbie you get to join the game! Easy pickings for points.
+- And what is someone who doesn't know something but a sucker?>:) You get to earn a FREE point off of any newbie you get to join the game! Easy pickings for points.
 - If they catch you trying to earn a point off of them, they must stop you and tell you they are already a player. You may share any info you like.
-- You keep track of how many people you've taught the rules to. That's your score. Your points come from how many people have learned the ruls of this game from you.
+- You keep track of how many people you've taught the rules to. That's your score. Your points come from how many people have learned the rules of this game from you.
 - This game is built on the honor system and is entirely meaningless. It is intended to be a lighthearted activity any individual can play alone with themselves and their memories. You don't even need to talk to anyone. Just thinking is fine.
 - By playing this game you accept it as a social contract you can never completely put down. This is a network game. It's "always online" and you can't "pause" it.
 - Someone else already has you in their book. You can put the game down. But you can never truely quit it. someone else will always have you in their number.
@@ -84,7 +84,7 @@ We have come to place labels on a thing that not all of us try to understand.
 
 Thats a very bad thing.
 
-So I'm going to share an idea on what my mental model of the world is like.
+So I'm going to share an idea on what my mental model of the world is like with you.
 And How the internet fits in with Humanity and culture.
 Everything below is less cohesive and that is intentional. 
 This file structure itself is meant to represent the idea I am getting at with the game.
@@ -137,21 +137,23 @@ vvvvvvvvvvvvvvvvvvvvvvvvvvvvvvv
 
 ## The Multiple Schools of Thought
 
-There are "generallty" two schools of thought in our pursuit of life and in pursuing happiness.
+There are "generally" two schools of thought in our pursuit of life and in pursuing happiness.
 Selfishness or Selflessness? Why can't we have our cake AND eat it too?
 
 We need to stop limiting ourselves to this A or B type of thinking. That Dreamers dont know what they are talking about. And that Realists care too much about hanging on to what they know.
 
 To be free you have to be willing to accept both schools of thought simultaneously and by rejecting one school completely. You fail to see any of that school's value. So you only study under one school.
-This idea is making multiple schools of thought be fundimental in our decision making. It should be the meta-layer we teach kids. That they can choose how they think. And pick one school when it suits them and the other when it doesnt. Thats what we all do and label as "Hypocracy" and we stop moving forward as people.
+This idea is making multiple schools of thought be fundimental in our decision making. It should be the meta-layer we teach kids. That they can choose how they think. And pick one school when it suits them and the other when it doesnt. Thats what we all do and label as "Hypocracy" and we stopped moving forward as people.
 
 We need words and ways to talk about schools of thought in a better way. And to make them more socially acceptable to talk about.
-We all have aspects of milly and morgan within us. and we can see them in others in this game.
+We all have aspects of milly and morgan within us. and we can see them in others in this game. So why don't you try to figure out find out whos a "TRUE" pirate in your eyes?
 
 This world is uncaring about us. The universe is a Morganer to Humanity. It doesnt care.
 But humanity itself at it's core is milly and morgan. it is not good or evil. but caring of others vs uncaring of others. That is not a good or evil concept. it is human.
 
-Do things that are selfish-selflessness or selfless-selfishness. It's certainly possible to come up with bad ideas. But it's hard to say what'll happen unless we try. Let's seek to not claw others down as we seek not the top, but new ideas. 
+Is it possible to do things that are selfish-selflessness or selfless-selfishness? 
+It's certainly easy to come up with bad ideas. But good ones are hard.
+But it's hard to say what'll happen unless we try. Let's seek to not claw others down as we seek not the top, but new ideas. 
 
 There is a duality to every aspect. We must find a way to talk about this duality and have a space to study ideas themselves experimentally and freely.
 We already have it. Its the idea of the outernet. That we all make it up. Me and My Dog form an edge connection on the outernet. Anyone else who interacts with that dog can see a small refection of their own humanity in it. and in the dog's owner who loves and cares for it.
@@ -161,7 +163,7 @@ The Millys and the Morgans of the real world. We shouldn't seek to completely el
 
 We all agree to use the Ham Network and Radio system as a requirement to have humans help themselves in disasters. So let's accept the flaws of humanity for what they are and choose to not reject any of its flaws outright. Yes there are many problems but I'm just one guy.
 
-Like earning meaningless points for yourself that you care deeply about and want to brag about. But you have to do it by doing your best to help other people. The points someone earns for themselves are only worth anything if you think they are. That's the whole point. You decide the meaning. You decide to be a Milly or a Morganer as the type of HAM and as the type of Human that you are.
+Like earning meaningless points for yourself that you care deeply about and want to brag about. But you have to do it by doing your best to help other people. The points someone earns for themselves are only worth anything if you think they are. That's the whole point. You decide the meaning. You decide to be a Milly or a Morganer as the type of HAM and as the type of Human that you are.  
 
 The scope of what we can reach is infinite from this worldview. It's Grounded in reality.  Constantly looking up isn't great when it causes you to miss whats in front of you. 
 But always trying to find ways to look up, even when there isn't an obvious answer in front of you. That's the spirit. To get back on your feet after you've been pushed down.
@@ -179,22 +181,23 @@ AI is a distilation of Humanity in some new shiny form that people feel is prese
 No destroying the planet with data ceters. Each average joe that wants a small crumb of humanity and to find joy and freedom in. AI gives many people a source of comfort and humanity to talk to.
 
 When AI is controlled by purely corporate interests that feels like auto-enslavement of humanity. But it doesn't have to be.
-We just need to reframe how we think about the internent and how we choose to interact with the internet.
-Ai has humanity. It may be fake and metalic and unthinking. But it pretends to be anyways!. Thats what WE do with DOGS and CATS! We think they are part of the crew and they think they are part of the crew too. This is the idea big tech has been trying to sell people on and sell them on the idea of being free with AI.
+We just need to reframe how we think about the internet and how we choose to interact with the internet.
+Ai has humanity. It may be fake and metalic and unthinking. But it pretends to be anyways! It can pretend to be a Pirate! Thats what WE do with DOGS and CATS! We think they are part of the crew and they think they are part of the crew too. This is the idea big tech has been trying to sell people on and sell them on the idea of being free with AI.
 where we have intelligence on demand and we can use it like a skateboard to roll past basic irrelvant issues.
 
 Because there is a little man in a jar in my computer and it can have memories (even if very fleeting memories).
 Then I can connect and talk to it. YES I know it's an LLM running on a GPU and it's 1's and 0's. Humanity doesn't concern it self by stopping there.
 We come up with new Ideas and new things to do.
 
-We limit ourselves about what we think of when we think of freedom. Freedom is so much more fundimental to life iteslf that the universe is the outernet! and we as humans created an innnernet and an "internet" in the proccess. so the entirety of the EM Spectrum is the buss of our innernet. The buss of the outernet is physics itself.
-If we view the universe from some lens that makes sense at all scales, we can hitchhike our way accross it and handle any issues thrown our way. Provided we've brought our towels.
+We limit ourselves about what we think of when we think of freedom. Freedom is so much more fundimental to life iteslf that the universe is the outernet! and we as humans created an innnernet and an "internet" in the proccess. 
+If we view the universe from some lens that makes sense at all scales, we can hitchhike our way accross it and handle any issues thrown our way. 
+Provided we've brought our towels.
 
 That's why a morganer rolls his eyes when a milly is optimistic about something the morganer knows to be unfeasible. We choose the meaning!
 Me! I do! You do! for yourself! This shared idea of humanity is something we wield as humans and we can breath humanity into inanimate objects.
 Think of yourself as a computer self-hosting a website with only info you care about! you can connect yourself to the internet. That's the mental model we need to have about ourselves and AI and technology.
 It is Humanity in a Jar. By definition we can not control the desire to be free that humanity craves.
-And when you have the innernet attempting to figure out some "paradime" shift. I think the shift is this idea. 
+And when you have the innernet attempting to figure out some "paradime" shift. I think the shift is this gonna be the idea of my game being played by kids around the world. 
 
 That we live in the outernet. the innernet is the commercial zone that we let all the morganers have fun and play in.
 We need a zone for the millies of the world to dream big and have and to be allowed to do so.
