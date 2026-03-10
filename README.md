@@ -2,7 +2,7 @@
 
 This is a digital signpost. I left it here. Some guy got bored and came up with an idea for other bored people. 
 This is where I stake my claim of what I think it means to try and make sense of it all in this world, and to help others find their sense too.
-This is my gift to the world.
+This is my gift to the world. and my personal "'Pirate' Proclomation"
 
 The top of this file is structured well and as you scroll further and further down it becomes more and more niche and weird.
 Just like how the real world is. 
