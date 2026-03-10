@@ -306,7 +306,7 @@ I want to be a Milly, even if this world demands the mentality of a Morganer.
 I want to make my dream a reality by using it to try helping others. 
 I wanna be just like Vash the Stampede, in my own way. Peace and Love!
 
-That's why i made this game idea FOSS. It is the foundational block upon we can build an experimental society. and the best part is it's nothing new. 
+That's why i made this game idea FOSS. Its a game that runs in your brain. It is the foundational block upon we can build an experimental society. and the best part is it's nothing new. 
 If you already know about it then you know I'm beating a dead horse. But I'm beating the dead horse for the people who don't get why im doing it yet. not for you.
 I want to give a chance to those who care enough to ask the question, Why? and i want easy words and terms for laymen to understand and talk about so we can all collectively decide to regain our humanity.
 and see ourselves however we like. Theres nothing inherently wrong with being a morganer. Just don't abuse anything. the hams figured out how to create that social contract and hold it together on their own.
@@ -314,11 +314,11 @@ lets have the hams leading the charge!
 
 We are cabable of comprehending problems at the individual and global scale. We just need the proper tools to measure these things.
 Empathy is the idea that the morganers try to reject by nature. When not grounded in reality.
-Greed is the nature that the millies try to reject by nature. When there is injustice.
+Greed is the nature that the millies try to reject by nature. When there is abuse.
 
 And we have a system with these two philosophies in conflict. 
-People think they are incompatible because they refuse to learn a new school. 
-They have given up on learning new things because they think they have learned all that they need to know.
+People think they are incompatible because they refuse to learn a new higher up school. 
+They have given up on learning new things because they think they have learned all that they'll ever need to know.
 
 I want Dreams to be accessible to everyone in a way that THEY can believe in them.
 If you have a foolish dream like mine. You can only hope to change others by first changing yourself.
