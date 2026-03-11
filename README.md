@@ -20,7 +20,7 @@ I encourage you to become a HAM "pirate."
 
 ## What Is Helios 0ne?
 
-Helios 0ne is a game. It is played by word of mouth only. It costs nothing. It requires nothing. It runs on the honor system entirely.
+Helios 0ne is a game. I created it during a GameJam in 48 hours. It is played by word of mouth only. It costs nothing. It requires nothing. It runs on the honor system entirely.
 
 It is an observer game. A tool that helps you keep tabs on what matters most to you in your life. You watch for the will of fire in the people around you. You count it. You watch it spread.
 
